@@ -25,6 +25,6 @@ directions:
 - Remove the frozen “filling” from it’s container, then use a sharp knife to cut it into bar-sized pieces. Return these to the freezer while you melt your chocolate.
 - Melt your Chocolate using either a double boiler or the microwave. If you choose to use the microwave, place your Chocolate pieces in a wide bowl (so the candy bars will fit along the base) and microwave at 30 seconds intervals, stirring in between. Once the Chocolate is 75% melted, stop microwaving and stir the mixture with a spatula until completely melted.
 - Moving quickly,  place 1 candy bar into the bowl of melted Chocolate. Use two forks to “flip” the bar, until it is coated in chocolate on all sides. Remove the ar from the melted Chocolate, letting any excess chocolate drip off. Then, place it onto a plate lined with parchment paper. Repeat with the remaining bars.
--Place the bars in the fridge for 5-10 minutes, to allow the Chocolate to harden.
+- Place the bars in the fridge for 5-10 minutes, to allow the Chocolate to harden.
 - Serve and enjoy! Bars are best stored in the fridge and will last there for up to 10 days. You can also place them in the freezer, where they will last for up to one month – just let the bars thaw for 5 or so minutes before enjoying.
 ---
