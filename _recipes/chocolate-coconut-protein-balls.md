@@ -22,5 +22,5 @@ directions:
 - Grease your hands with a bit of coconut oil, grab some of the date mixture and roll it into a ball (about one inch in diameter). 
 - Once rolled, place the ball into the plate of coconut and sprinkle/roll it all about pressing down to make sure it sticks. Place the coconut covered ball onto the parchment paper.
 - Repeat until you run out of batter (makes 18-20 balls).
--Allow to set in freezer for 20-30 minutes. Store in an airtight container.
+- Allow to set in freezer for 20-30 minutes. Store in an airtight container.
 ---
