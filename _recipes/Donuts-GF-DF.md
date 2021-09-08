@@ -16,7 +16,7 @@ ingredients:
 - 1 teaspoon white vinegar
 - FOR THE COATING:
 - ¼ cup granulated sugar
--1 teaspoon cinnamon
+- 1 teaspoon cinnamon
 
 directions:
 -For the donuts: Preheat oven to 425°F. Grease one six-serving donut pan; set aside.
